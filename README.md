@@ -1,0 +1,1 @@
+具体描述可以看http://blog.csdn.net/xiangxi101/article/details/53113736
